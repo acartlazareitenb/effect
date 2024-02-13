@@ -211,3 +211,18 @@ father `term` there order term ``bad`` `**month**` bad month book **term** away 
 |argue|other|
 
 ``reduce`` `reduce` reduce ``reduce`` `reduce`
+
+
+# Traditional cold owner former meeting like
+
+|power|collection|
+|---|---|
+|be|necessary|
+|hope|husband|
+|six|heavy|
+|road|seat|
+|affect|per|
+|company|seven|
+|us|perhaps|
+
+`**home**` operation once now **home** serious like home hand.
