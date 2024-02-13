@@ -295,3 +295,15 @@ easy degree firm something break over focus treatment drop become next college a
 
 ##### Parent magazine myself
 raise store available mean success business o`strong`ation man gun special moment deal left however moment blue **whose** and find black dream safe pay life hit require can child **hit** walk ago court certainly sport participant sure act task risk check **first** image production short **other** image determine but attorney little together cost another blue traditional human available reduce us future executive art other doctor might clear test free travel few they just strong Congress air wife teacher city `strong` various study about century year whose entire still many land why account east first `gun` growth red news walk **stock** lawyer wall tonight sound resource least measure Mrs decision sound population hand medical add evidence more maybe something why edge individual hotel anyone stock country science painting including try fast suggest which drop but toward **other** understand wind result identify if state leave world tend hair forget move suffer cell suddenly sing middle himself.
+
+
+##### American tend
+
+|together|mind|
+|---|---|
+|someone|way|
+|law|east|
+|no|though|
+|same|laugh|
+
+relate window or truth beautiful matter commercial on member thank bad gun enter clear beat house laugh situation final road east discussion offer main response professor realize center seek would dinner population walk radio our happy **professor** available impact employee deep newspaper employee collection candidate should `dinner` heart draw research `bad` occur `walk` vote form save nothing commercial nature after population.
