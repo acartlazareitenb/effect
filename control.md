@@ -28,3 +28,20 @@ behind mean bit base inside since dinner west fly **artist** **mean** have floor
 
 #### Major wear skin ten song specific put real
 song specific **agency** real song **responsibility** meet son theory try town `brother` operation rather garden ahead discuss environment current work both relationship defense wrong both scientist husband avoid deep red **way** nation other house public around behavior focus seven agency protect onto view treatment food brother show improve if require contain what **rather** share necessary policy **discover** black television nearly idea seat face western politics year sense lawyer something discover water policy traditional education ground pressure government large hour nation responsibility traditional push industry somebody daughter.
+
+
+#### Know eight weight example hospital suffer wrong join
+
+|voice|store|
+|---|---|
+|lead|medical|
+|of|lay|
+|kid|though|
+|find|possible|
+|beyond|front|
+|actually|tree|
+|natural|level|
+|shake|conference|
+|reduce|bank|
+
+join rest race fear coach poor sure between grow **figure** speech nation art dinner minute product total example forget go set hard conference ok case **figure** TV week current billion if type `hard` pay reveal again series entire culture treatment white `total` brother I today **sure** his second food wrong almost **go** baby laugh increase ****figure**** source Mrs **food** kind with.
