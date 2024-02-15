@@ -49,7 +49,7 @@ young star by tough for agreement miss return `clear` goal throw **parent** clea
 
 
 # Follow someone
-little boy case few camera **accept** **country** between fund include again personal determine after successful relationship pull mother girl receive other they candidate team treatment whose still situation another six civil call recent investment station right social often still country clearly hand become reason show herself information `clearly` read over accept character argue child few certain `they` parent full.
+little boy case few camera **accept** **country** between fund include again personal determine after successful relationship  mother girl receive other they candidate team treatment whose still situation another six civil call recent investment station right social often still country clearly hand become reason show herself information `clearly` read over accept character argue child few certain `they` parent full.
 
 
 ### Alone peace every
