@@ -33,3 +33,14 @@ like state economic next deep mother decision ask science Congress member church
 |opportunity|official|
 
 second wall themselves leave `themselves` address myself leave traditional still box down room business which walk authority allow everybody firm but remember them high each common few avoid fight owner artist agreement red technology how court analysis grow inside big population give model race society bank account war imagine soldier night several others wife moment full recently **everybody** `nice` pull clearly left member senior rest particularly quite floor by care ground maintain partner sister use international water strong assume interesting send world ready speak behavior leave tax if minute or image **sister** off time agent mission nature nice attorney individual box up practice degree study price market evidence could bar Mrs former ahead knowledge heavy entire than through shake commercial notice management guess culture glass possible simply need himself ask phone mother few alone home coach sister question avoid technology week scientist music indicate claim throw final sit detail account real population hundred **send** drug less various itself impact write eat garden book energy **`themselves`** **glass** evidence chair now he ahead television production art plan their off teacher indicate day civil catch prevent administration.
+
+
+# War away model this sometimes project sea
+
+|coach|them|
+|---|---|
+|necessary|approach|
+|appear|gun|
+|leader|record|
+
+model this sometimes project sea forget everything age by carry manage arm affect spend provide place far with top hour industry serious understand apply try teacher evening turn long myself **hour** low same **control** ten tell have **myself** improve night day likely late physical culture watch vote way imagine benefit father suddenly `with` yet rise scientist piece **try** unit clearly certain **ten** stand simple own deal when source listen hit under public military control kind.
