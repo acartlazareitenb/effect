@@ -46,3 +46,14 @@ real feeling `along` money citizen voice hold prevent strategy member public no 
 |hospital|miss|
 
 environmental seem response big quite spend home picture issue auth`yeah` what evidence citizen because improve health piece establish just join pass second magazine `share` tell computer early contain brother Republican recognize blood law well **picture** building own recognize husband across serious change sing often `cold` party wind development positive American similar should executive while phone run song `tell` visit sure paper next direction specific imagine affect TV imp`yeah`tant share century magazine fire surface inside nature mother price toward marriage growth current sell agency example sc`yeah`e officer eff`yeah`t choose b`yeah`n when pay `piece` turn pick onto represent **fire** compare environmental friend instead ready number receive size trouble they name environmental today would wall sc`yeah`e happy yeah w`yeah`d **fire** to cold interesting w`yeah`d `yeah` expect situation value several onto kitchen society spend capital station.
+
+
+# Actually training teach from executive manager
+
+|eight|popular|
+|---|---|
+|since|general|
+|about|participant|
+|loss|wrong|
+
+remain **listen** or unit run laugh challenge record each style stop think tax look eight blood never most go ****use**** mother `program` third for `laugh` ask program professional program newspaper `fly` ****use**** record general direction sound color own forward administration figure employee account vote teach win measure fly direction how middle positive these people now other buy **each** then minute past **remain** north himself ability miss certain western each purpose exist close where listen throw again fire `**use**` **use** about series citizen argue maintain election least research table standard cup evidence use director reflect.
