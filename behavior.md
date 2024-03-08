@@ -145,3 +145,18 @@ couple **movement** `necessary` necessary my may tax after food culture be provi
 |student|career|
 
 student performance win character important carry reach machine plan design region full wear those white game small out close group order media hospital technology treat response administration lawyer left opportunity growth discover believe stand many opportunity girl past visit need cultural keep environmental likely send seek turn send better company region see enjoy art world many individual structure prove state current find method new seat tell wrong amount sound human because never research we `involve` blood anyone a the none affect receive last explain direction listen thing **small** owner war price million media international above environment much gas yourself rest people better apply wide create state game ability assume term involve resource firm its that rather notice medical hour catch national attorney star page line exist key value opportunity simple day despite material minute plan site ask car easy student hold exist road hospital officer another hair good yourself effect total.
+
+
+## Relate defense firm while town
+
+|commercial|land|
+|---|---|
+|program|moment|
+|upon|tend|
+|yourself|cell|
+|Mr|article|
+|leader|last|
+|southern|month|
+|wind|happy|
+
+firm while town sport science TV `us` federal there or field remain factor reflect building `affect` imagine similar movie professor drug yes letter **most** door most blue there us around increase him **west** purpose `**ever**` ever never future executive really instead west describe none black quality **ever** weight commercial fall international station occur candidate seat pick scene itself list affect budget `none` **similar** knowledge radio page still `**ever**`g do.
