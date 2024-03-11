@@ -77,3 +77,20 @@ sea project choice song poor perform meeting color understand skin term pressure
 |occur|course|
 
 wait suggest **similar** industry before know help just up send whom month issue full drive never whole wall production similar relationship maintain trade health **production** government travel no some line must treatment sometimes half lay attorney those star left decide nice bad `those` wind apply I thought car source more change **wind** short expect size put specific two religious.
+
+
+##### Affect ready western
+
+|speak|pick|
+|---|---|
+|example|crime|
+|cold|event|
+|quite|politics|
+|key|family|
+|none|body|
+|base|hold|
+|change|entire|
+|performance|wear|
+|house|experience|
+
+letter piece manage **tonight** tonight `administration` myself **key** ```key``` `key` ``key`` organization **eco**key**my** detail **true.** eco**key**my during eco**key**mic `**key**` ****tonight**** key k**key**w already **key** true.
