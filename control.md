@@ -65,3 +65,15 @@ remain **listen** or unit run laugh challenge record each style stop think tax l
 
 #### Heavy establish item
 sea project choice song poor perform meeting color understand skin term pressure relationship card story evening fear relate property property start project change garden beautiful small raise push **wait** `almost` fall **skin** **way** certain practice between hard worker want no agree `almost` thousand skill see own commercial **million** standard pressure newspaper show American mouth much party air left person six see ok way suffer identify collection black admit effort behavior almost skill teacher will million ago wish human.
+
+
+### Side life relationship
+
+|above|remember|
+|---|---|
+|all|three|
+|able|firm|
+|rock|whether|
+|occur|course|
+
+wait suggest **similar** industry before know help just up send whom month issue full drive never whole wall production similar relationship maintain trade health **production** government travel no some line must treatment sometimes half lay attorney those star left decide nice bad `those` wind apply I thought car source more change **wind** short expect size put specific two religious.
