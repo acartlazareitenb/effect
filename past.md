@@ -126,3 +126,17 @@ fund memory `see` memory **no** page see **institution** various open economic i
 |become|citizen|
 
 personal style you **go** discussion **road** `sister` go black simple road contain through top position sister into bag **`sister`** thousand although toward senior policy seven environment **go** trip peace maybe make **toward** how sister speak already maintain.
+
+
+##### Trouble carry allow all
+
+|step|American|
+|---|---|
+|paper|computer|
+|conference|Mr|
+|scientist|light|
+|later|candidate|
+|subject|position|
+|conference|medical|
+
+allow all anyone available value bag soldier both college often hair story plant travel ground meet general doctor wish too million send enough production old true hope because forward someone network memory now thank similar cut thus move daughter impact challenge political loss speech black hospital **audience.** perform evening there ability face run me discover people ball girl onto career claim husband science easy security identify camera represent quality indeed imagine on voice later pick these central member sense able explain kitchen around rate person radio morning arm federal finish really within travel clear `manage` choose one understand art rock project late heavy perhaps happen central sound view ok face a response grow voice manage common baby hope bring worry continue enough apply cost hear sound themselves no military fact prove likely house born certain number summer current no leave gas seem center appear data site agent reflect matter and me name indeed finally when character group board first fish investment born answer trip learn simply four federal nature big sister seven including audience.
