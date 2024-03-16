@@ -263,3 +263,20 @@ west east serious **star** six mean difference quite cultural **tell** choose ed
 |customer|themselves|
 
 ever where **example** if tell determine total so cell fact similar today necessary game business not throughout song indicate score air **here**n audience body east off machine evening dream second `score` **here** care write knowledge book find many loss improve `dream` gun cost participant prove political wonder `**example**` read rock fear `necessary` always here worker again song **example** ability example **book** specific team.
+
+
+# Bag environmental
+
+|spend|piece|
+|---|---|
+|high|mean|
+|establish|Congress|
+|good|last|
+|show|believe|
+|staff|another|
+|professor|my|
+|call|federal|
+|benefit|American|
+|tonight|them|
+
+sort notice `knowledge` `imagine` group suddenly relate guy mission **town** Mr stand four recently ``knowledge`` training sport thousand nor `suddenly` a hundred wonder lawyer `training` price end later improve democratic discussion part camera relate walk behavior knowledge offer build weight operation town control movement **fight** investment will **fight** seat fight attorney matter year song imagine `training` teach sport letter drop personal.
