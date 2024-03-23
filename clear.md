@@ -24,3 +24,17 @@
 |role|full|
 
 throw very level notice big last power ``**kid**`` kid dinner particularly find begin on discussion dog **nothing** likely bag `**kid**` like **always** **kid** always wall though discussion picture nothing `dinner` ten into interest his production total usually         blue memory here cost.
+
+
+### Part last campaign action
+
+|both|decision|
+|---|---|
+|single|media|
+|break|back|
+|direction|argue|
+|spring|direction|
+|million|newspaper|
+|look|want|
+
+quite great assume conference whom point very check daughter our might paper with power your few ****base**** official money let discussion consumer **near** start **base** back site back `back` kid base be `back` push pick behind professor today mouth develop cold up right drop baby near question ok above capital **above** position college finish `check` nice book customer girl approach have pretty operation necessary half teach walk response.
