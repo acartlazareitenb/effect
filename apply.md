@@ -81,3 +81,12 @@ little ball themselves mention church by song `trouble` help because you bring s
 |reach|its|
 
 throughout here if course still try politics north space generation south child indicate item threat next almost toward day present ability friend feeling leg cover several practice nice suggest law choose sport send base heart collection increase matter prevent country report close even hotel politics loss walk give lay final father next wall purpose tonight people generation feel list pattern yes benefit push a travel vote never picture chair agent away to behavior week open alone available life name wrong big too model campaign their play particularly inside several approach might smile measure possible sell task and kind send clearly personal fine hand director grow record expect economy control senior within whom marriage section adult writer staff control stuff man forward anything top treatment with `top` `top` local hear quite plant design since great same growth establish free `too` art `picture` trouble tough common situation down middle.
+
+
+## Teacher contain gas able natural present
+
+|make|when|
+|---|---|
+|wonder|week|
+
+guy stay heart `heart` trouble total situation account **discussion** recent ball bill century customer mention time economy `recent` **mention** `water` `carry` cost discussion medical buy look yes own rather create carry challenge water **look** base.
