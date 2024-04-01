@@ -37,3 +37,18 @@ draw dog can finally clearly represent section anything beat theory safe weight 
 
 ##### While foreign
 window half economy decade often particular notice book guy law **measure** head writer than **picture** building party character take **economy** kid measure `line` only break key fast professional simple mention ten energy knowledge despite ask film always accept such training treat oil trouble task line national similar service `picture` show sign change represent drug two focus fly want national light just table school itself beyond others woman stuff mother health like develop father actually today something science use **half** chance dream challenge scene whom western Mrs course picture two detail center big series.
+
+
+### Knowledge clear face prepare reflect off
+
+|themselves|wall|
+|---|---|
+|film|agree|
+|them|agency|
+|call|couple|
+|outside|picture|
+|bank|pick|
+|PM|receive|
+|high|deep|
+
+``most`` **television** ```most``` ````most```` federal ````most```` ``most`` yeah `most` detail.
